@@ -5,7 +5,7 @@ Rabat, Morocco (Remote) | [youssefzenatitp@gmail.com](mailto:youssefzenatitp@gma
 ---
 
 ## 💡 About Me
-Customer support professional with 4+ years of remote experience specializing in live operations, technical troubleshooting, live chat, and bug tracking. Active user of Web3 protocols, self-custody wallets, exchanges, and on-chain transactions.
+Customer support professional with 5+ years of remote experience specializing in live operations, technical troubleshooting, live chat, and bug tracking. Active user of Web3 protocols, self-custody wallets, exchanges, and on-chain transactions.
 
 ---
 
@@ -32,4 +32,4 @@ Customer support professional with 4+ years of remote experience specializing in
 ---
 
 ## 📄 Resume
-You can view or download my full resume here: https://drive.google.com/file/d/1cMkCShAYg1fJGVOI6DhuW2mlKuE7ZBH2/view?usp=drive_link
+You can view or download my full resume here: https://drive.google.com/file/d/1eDmo2IYUmipn6_c0vM0H7Iwo-6A-2UBt/view?usp=drive_link
